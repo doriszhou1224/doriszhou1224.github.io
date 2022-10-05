@@ -1,4 +1,4 @@
-# doriszhou1224.github.io
+# Xin Yue Zhou
 
 ## WEBSITE YAY
 
